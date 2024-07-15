@@ -42,9 +42,9 @@ Help us reach more people by sharing our mission with your friends and family. F
 
 We'd love to hear from you! Whether you have questions, want to get involved, or need assistance with an animal, feel free to reach out.
 
-- **Email:** [preetbhavsar28@gmail.com(mailto:preetbhavsar28@gmail.com)
+- **Email:** [preetbhavsar28@gmail.com]
 
-- [Instagram](@EnactInitiative)
+- **Instagram** [@enactinitiative]
 
 ---
 
